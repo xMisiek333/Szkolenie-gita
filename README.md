@@ -1,1 +1,3 @@
-# Szkolenie-gitsiemano
+# Szkolenie-git
+
+szymon 
