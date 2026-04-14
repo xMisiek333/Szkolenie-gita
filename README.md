@@ -1,4 +1,4 @@
 # Szkolenie-git
 
-szymon to sztos kabanos a milosz to gejek
+szymon to cwelllllllllllllllll kabanos a milosz to szeffffffff :D
 
