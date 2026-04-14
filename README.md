@@ -1,4 +1,4 @@
 # Szkolenie-git
 
-jebac krzyska i kokotow i tyle 
+ krzyska i kokotow i tyle 
 
