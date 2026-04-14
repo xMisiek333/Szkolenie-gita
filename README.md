@@ -1,1 +1,1 @@
-# Szkolenie-gita
+# Szkolenie-gitsiemano
